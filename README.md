@@ -13,7 +13,7 @@
 
 ###
 
-<p align="left">📶 Data Analyst  | Business Analyst 📈<br><br>✨ Ask me about Data and Business<br>📚 I'm currently learning multiple things🌝<br></> 💲I'm working on Crypto and Web3 projects as well<br><br>📩 Reach me joyalscaria97@gmail.com</p>
+<p align="left">📶 Data Analyst  | Business Analyst 📈<br><br>✨ Ask me about Data and Business<br>📚 I'm currently learning multiple things🌝<br></> 💲I'm working on Data, Software, Crypto and Web3 projects as well<br><br>📩 Reach me joyalscaria97@gmail.com</p>
 
 ###
 
